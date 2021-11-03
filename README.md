@@ -1,1 +1,1 @@
-@evgeniylebedev, electronic enthusiast
+lebedev.evgeniy@gmail.com
